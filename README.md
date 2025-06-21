@@ -1,7 +1,8 @@
 <h2>种子吧官方网站 - 免费磁力搜索工具最新网址|发布页</h2>
 <p>种子吧是一个专业的BT种子搜索网站，其前身是成立于2013年的sobt，是国内较早的网页磁力搜索引擎之一。作为一个专注于BT种子资源搜索的平台，种子吧致力于为用户提供海量的BT种子和磁力链接资源，帮助用户快速找到所需的电影、音乐、软件、游戏等资源。种子吧通过DHT网络实时获取最新的BT种子信息，并支持多种搜索方式，如关键词搜索、文件名搜索和标签搜索等，满足不同用户的多样化需求。</p>
 <p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/5746.html" target="_blank"><strong>种子吧最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com"><strong>磁力导航大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
